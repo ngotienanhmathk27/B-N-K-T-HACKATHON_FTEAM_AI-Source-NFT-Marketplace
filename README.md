@@ -1,1 +1,1 @@
-# B-N-K-T-HACKATHON_FTEAM_AI-Source-NFT-Marketplace
+# BAN-KET-HACKATHON_FTEAM_AI-Source-NFT-Marketplace
